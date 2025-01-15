@@ -8,4 +8,4 @@
 
 # Other
 <img src="https://i.imgur.com/aaDQzyB.gif" width="240"><img src="https://i.imgur.com/3ccvunl.gif" width="240"><img src="https://i.imgur.com/xM8a3gR.gif" width="240"><img src="https://i.imgur.com/J6nxBgB.gif" width="240">
-<img src="https://i.imgur.com/cKwWGa2.gif" width="240"><img src="https://i.imgur.com/d9pDNmj.gif" width="240"><img src="https://i.imgur.com/jP3u8Y2.gif" width="240"><img src="https://i.imgur.com/aj3tiXb.gif" width="240">
+<img src="https://i.imgur.com/8zywFOo.gif" width="240"><img src="https://i.imgur.com/d9pDNmj.gif" width="240"><img src="https://i.imgur.com/jP3u8Y2.gif" width="240"><img src="https://i.imgur.com/aj3tiXb.gif" width="240">
